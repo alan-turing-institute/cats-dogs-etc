@@ -1,1 +1,1 @@
-Computer Vision Challenge 2025
+Summer Experience - Computer Vision Challenge

@@ -1,0 +1,1 @@
+Manchester 2025 participants put your tricky image here!
