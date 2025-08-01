@@ -1,1 +1,1 @@
-very good
+Computer Vision Challenge 2025
